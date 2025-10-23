@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ElTerryCh
-- 👀 I’m interested in Watch series and listen music.
+- 👀 I’m interested in listening music.
 - 🌱 I’m currently learning program
 - 💞️ I’m looking to collaborate on. No lmao
 - 📫 How to reach me . No XD
